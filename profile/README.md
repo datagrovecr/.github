@@ -13,5 +13,5 @@
 
 ## Join Us 
 
-### [Discord]https://discord.gg/CgkdasrDDC
+### Discord(https://discord.gg/CgkdasrDDC)
 
